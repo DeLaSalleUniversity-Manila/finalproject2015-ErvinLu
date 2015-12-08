@@ -43,10 +43,48 @@ finalproject2015-ErvinLu created by Classroom for GitHub
 
 ![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212455.png)
 
-![alt tag]()
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212503.png)
 
-![alt tag]()
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212509.png)
 
-![alt tag]()
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212514.png)
 
-![alt tag]()
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212521.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212542.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212551.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212606.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212615.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212622.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212631.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212637.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212646.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212653.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212705.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212714.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212723.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212842.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212854.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-212906.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-213236.png)
+
+![alt tag](https://github.com/DeLaSalleUniversity-Manila/finalproject2015-ErvinLu/blob/master/HuffPuff/device-2015-12-08-213253.png)
+
+## Videocapture
+
+(https://youtu.be/x65bkv6ki10)
